@@ -7,6 +7,6 @@ If you like my work, I invite you to:
 * Contact me through my site on Linkedin.✒️
 * Tell others about this project 📢
 
-
-Greetings, Andy.
 ---
+Greetings, Andy.
+
